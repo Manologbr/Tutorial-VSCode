@@ -1,0 +1,2 @@
+excepto para obtener alguna ventaja de ello? Pero, ¿quién tiene derecho a criticar a un hombre que elige disfrutar de un polejoecer que no
+tiene consecuencias molestas, o uno que evita un dolor que no produce ningún polejoecer resultante?
